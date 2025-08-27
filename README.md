@@ -10,3 +10,5 @@ Marcs wishlist
 [Link til Saxo](https://www.saxo.com/dk/the-burnout-society_byung-chul-han_paperback_9780804795098)
 
 [Link til Bog&Ide](https://www.bog-ide.dk/produkt/5126614/byung-chul-han-the-burnout-society)
+
+Chrome cast
