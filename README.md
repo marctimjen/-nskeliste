@@ -11,4 +11,12 @@ Marcs wishlist
 
 [Link til Bog&Ide](https://www.bog-ide.dk/produkt/5126614/byung-chul-han-the-burnout-society)
 
-Chrome cast
+# Chrome cast eller TV med Chrome cat inbygget
+
+# Svømme - hætte, hue, hat (hvad end man kalder dem).
+
+# Heart rate monitor
+
+# Computer monitors
+
+# Patagonia Vest
