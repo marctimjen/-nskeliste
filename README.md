@@ -15,7 +15,12 @@ Marcs wishlist
 
 # Svømme - hætte, hue, hat (hvad end man kalder dem).
 
-# Heart rate monitor
+# Heart rate monitor (Garmin HRM Dual Pulsmåler)
+
+[Link til Techinn](https://www.tradeinn.com/bikeinn/da/garmin-hrm-dual-pulsmaler/137082134/p)
+
+[Link til ProShop](https://www.proshop.dk/Smartwatch-Tilbehoer/Garmin-HRM-Dual/2738439?utm_source=google&utm_medium=cpc&utm_campaign=searchengine)
+
 
 # Computer monitors
 
