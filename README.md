@@ -6,8 +6,6 @@ Marcs wishlist
 
 [Link til ProShop](https://www.proshop.dk/Ismaskine/Ninja-Ismaskine-Creami-Deluxe-NC501EU-Black-Silver/3283810)
 
-# ● Chrome cast eller TV med Chrome cast inbygget
-
 # ● Svømme - hætte, hue, hat (hvad end man kalder dem).
 
 # ● Heart rate monitor (Garmin HRM Dual Pulsmåler)
@@ -36,3 +34,8 @@ Marcs wishlist
 [Link til Saxo](https://www.saxo.com/dk/the-burnout-society_byung-chul-han_paperback_9780804795098)
 
 [Link til Bog&Ide](https://www.bog-ide.dk/produkt/5126614/byung-chul-han-the-burnout-society)
+
+
+# Kontakt mig ved følgende gaver:
+
+# ● Chrome cast eller TV med Chrome cast inbygget
