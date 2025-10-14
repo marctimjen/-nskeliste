@@ -6,7 +6,7 @@ Marcs wishlist
 
 [Link til ProShop](https://www.proshop.dk/Ismaskine/Ninja-Ismaskine-Creami-Deluxe-NC501EU-Black-Silver/3283810)
 
-# ● Chrome cast eller TV med Chrome cat inbygget
+# ● Chrome cast eller TV med Chrome cast inbygget
 
 # ● Svømme - hætte, hue, hat (hvad end man kalder dem).
 
