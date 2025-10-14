@@ -6,11 +6,6 @@ Marcs wishlist
 
 [Link til ProShop](https://www.proshop.dk/Ismaskine/Ninja-Ismaskine-Creami-Deluxe-NC501EU-Black-Silver/3283810)
 
-# ● Bog: The Burnout Society:
-[Link til Saxo](https://www.saxo.com/dk/the-burnout-society_byung-chul-han_paperback_9780804795098)
-
-[Link til Bog&Ide](https://www.bog-ide.dk/produkt/5126614/byung-chul-han-the-burnout-society)
-
 # ● Chrome cast eller TV med Chrome cat inbygget
 
 # ● Svømme - hætte, hue, hat (hvad end man kalder dem).
@@ -35,3 +30,9 @@ Marcs wishlist
 # ● Drinks sharker barsæt (alt i stål)
 
 # ● Julepynt
+
+# ● Bøger: 
+## The Burnout Society:
+[Link til Saxo](https://www.saxo.com/dk/the-burnout-society_byung-chul-han_paperback_9780804795098)
+
+[Link til Bog&Ide](https://www.bog-ide.dk/produkt/5126614/byung-chul-han-the-burnout-society)
