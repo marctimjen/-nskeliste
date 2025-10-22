@@ -17,8 +17,6 @@ Marcs wishlist
 
 # ● Computer monitors
 
-# ● Patagonia Vest
-
 # ● Lednings-fri støvsuger
 
 # ● 8 eller 10 stik-dåse med surge protection (mod lyn-nedslag). Gerne 2 x 4 eller 2x5 rækker i sort
