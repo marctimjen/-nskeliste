@@ -8,8 +8,6 @@ Marcs wishlist
 
 # ● Svømme - hætte, hue, hat (hvad end man kalder dem)
 
-# ● Computer monitors
-
 # ● Lednings-fri støvsuger
 
 # ● 8 eller 10 stik-dåse med surge protection (mod lyn-nedslag). Gerne 2 x 4 eller 2x5 rækker i sort
@@ -27,3 +25,5 @@ Marcs wishlist
 # Kontakt mig ved følgende gaver:
 
 # ● Chrome cast eller TV med Chrome cast inbygget
+
+https://www.sharkninja.dk/ninja-crispi-pro-7-i-1-glas-airfryer-cyberspace-as101eucy/AS101EUCY.html?dwvar_AS101EUCY_color=434D61
